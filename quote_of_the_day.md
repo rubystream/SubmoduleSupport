@@ -1,4 +1,3 @@
- Clare Boothe Luce
-> Courage is the ladder on which all the other virtues mount. 
-
+William Shakespeare
+> We know what we are, but know not what we may be.
 
