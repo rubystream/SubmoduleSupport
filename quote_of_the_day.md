@@ -1,3 +1,2 @@
-William Shakespeare
-> We know what we are, but know not what we may be.
-
+George Bernard Shaw
+>Progress is impossible without change, and those who cannot change their minds cannot change anything.
