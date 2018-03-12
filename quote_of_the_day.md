@@ -1,2 +1,2 @@
-George Bernard Shaw
->Progress is impossible without change, and those who cannot change their minds cannot change anything.
+Alexander the Great
+> There is nothing impossible to him who will try.
